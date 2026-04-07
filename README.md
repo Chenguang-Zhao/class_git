@@ -4,3 +4,4 @@
 - I asked the IT guy, "How do you make a Motherboard?" He said, "I tell her about my job."
 - Why dont' scientists trust atoms? Because they make up everything.
 - What's the most expensive air you can buy? Millionaire
+- What do you call a bear with no teeth? A gummy bear!
