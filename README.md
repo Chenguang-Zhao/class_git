@@ -10,3 +10,4 @@
 - A snake walked into a bar. The bartender said, How did you do that?
 - What do you call a bear with no teeth? A gummy bear!
 - Where do pirates get their hooks? Secondhand stores!
+- What did the beaver say when it saw it's home on fire? Dam!
